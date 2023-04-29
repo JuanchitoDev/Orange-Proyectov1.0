@@ -12,7 +12,7 @@ Me falta mas dominio
 
 
 ORANGE version 1.0
-Esta es su primera version ya que pienso seguir mejorandola mucho mas,  Como tambien conocimientos  y lograr hacer que sea dinamica Y funcional.
+Esta es su primera version ya que pienso seguir mejorandola mucho mas,  Como tambien  mis habilidades  y lograr que sea dinamica Y funcional.
 
 
 Hora: 3:41pm
